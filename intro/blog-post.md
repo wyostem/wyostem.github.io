@@ -6,7 +6,7 @@ We are seeing a shift in expectations from both employers and from colleges.  Th
 
 ## Our Goal
 
-The goal of Wyo STEM is to actively support the school district in the expansion of STEM offerrings.  The school district has some terrific general plans outlined.  To implement these plans is a challenging process.  Our hope is we can leverage our members in many ways to support this progress in the district.  This could take the form of our members' business and technology expertise, financial support, or volunteering in the schools.
+The goal of Wyo STEM is to actively support the school district in the expansion of STEM offerrings.  The school district has some terrific general plans outlined.  To implement these plans is a challenging process.  Our hope is we can leverage our members in many ways to support this progress in the district.  This could take the form of our members' business and technology expertise, financial support, and volunteering in the schools.
 
 ## Current STEM Offerings
 
@@ -48,7 +48,7 @@ Currently, the STEM Offerings across the three schools are:
 
 #### Creative Solutions
 
-While the school district has some great plans slated for the future, they're also committed to providing for students in the short-term.  In that vein, they will be providing some much needed space for STEM classes by utilizing the secondary wrestling room at the high school.  This type of out-of-the-box problem solving is exactly the type of mindset we want to grow in our students.
+While the school district has some great plans slated for the future, they're also committed to providing for students in the short-term.  In that vein, they will be providing some much needed space for STEM classes by utilizing the second wrestling room at the high school.  This type of out-of-the-box problem solving is exactly the type of mindset we want to grow in our students.
 
 #### School District STEM Plans
 
