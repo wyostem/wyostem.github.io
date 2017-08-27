@@ -23,8 +23,8 @@ Currently, the STEM Offerings across the three schools are:
 
 ### Jr/Sr High (grades 7-12)
 
-- STEM Robotics Computer Science Course (1st semester)
-- STEM Robotics Independent Study (2nd semester)
+- STEM Robotics (semester course)
+- 7th Grade Principles of STEM (single quarter for all students)
 
 ## How You Can Help
 
