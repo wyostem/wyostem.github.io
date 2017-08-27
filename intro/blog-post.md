@@ -48,7 +48,7 @@ Currently, the STEM Offerings across the three schools are:
 
 #### Creative Solutions
 
-While the school district has some great plans slated for the future, they're also committed to providing for students in the short-term.  In that vein, they will be providing some much needed space for STEM classes by utilizing the second wrestling room at the high school.  This type of out-of-the-box problem solving is exactly the type of mindset we want to grow in our students.
+While the school district has great plans for the future, they are also committed to providing for all students in the short-term. In that vein, they are looking to provide much needed space for the existing STEM courses such as using one of the practice wrestling rooms.
 
 #### School District STEM Plans
 
